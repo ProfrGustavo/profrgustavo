@@ -1,5 +1,7 @@
 ### Hi there, bem vindo ao meu perfil 👋
 
+:trollface: :trollface::trollface::trollface::trollface::trollface::trollface::trollface::trollface::trollface::trollface:
+
 
 **ProfrGustavo/profrgustavo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
